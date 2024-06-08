@@ -1,6 +1,5 @@
 ## ¡Hola! Soy Andy Jaramillo 👋
 
- ![Isracode](https://github.com/Isracraxcker/Isracraxcker/assets/133439166/6ea53b2b-66e1-4acb-8f86-94bbb9657d17)
 
 
 **Sobre mí**
